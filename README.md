@@ -1,0 +1,2 @@
+# -nsgatram
+HESAP ÇALMAK 
